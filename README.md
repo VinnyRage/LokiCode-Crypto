@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LokiCode-Crypto
+- 👀 I’m interested in thons of things
+- 🌱 I’ve learned everything
+- 💞️ I’m looking to collaborate on nothing
+- 📫 Reach me everywhere
